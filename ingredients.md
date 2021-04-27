@@ -1,0 +1,13 @@
+onion-2cup,
+green chillis-1-2pcs,
+jeera-1tbs,
+besan-1cup,
+ajwain-1tbs,
+water- as per consistency,
+ginger and chillis paste-2tbs,
+oil-1cup,
+rice flour-1cup,
+termeric-1tbs,
+salt-as per taste,
+red chilly powder- as per tatse,
+chaat masala-as per taste(decorating dish)
